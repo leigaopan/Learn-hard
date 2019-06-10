@@ -1,2 +1,3 @@
 # Learn-hard
 nothing to description because i am a white paper...
+nothing to say.i come here because i want to know how to code and how to changes some easy codes.
